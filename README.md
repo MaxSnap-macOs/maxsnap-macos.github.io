@@ -1,0 +1,1 @@
+# maxsnap-macos.github.io
